@@ -8,3 +8,7 @@ Me gustan los pulpos
 
 Amo el Ratatan
 
+
+
+Y el Blazblue
+
